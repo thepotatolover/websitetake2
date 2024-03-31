@@ -1,2 +1,4 @@
 # websitetake2
-AHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
+
+> [!IMPORTANT]
+> hiiiiii this website might be good idkdkdkdkdkdk
